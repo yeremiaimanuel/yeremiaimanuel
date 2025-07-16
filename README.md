@@ -20,8 +20,8 @@
 - Statistical analysis for business decisions
 
 ## 📫 Let’s Connect!
-- 📧 yeremia@example.com *(ganti dengan email kamu)*  
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile)  
+- 📧 yeremiaimanuel22@gmail.com*  
+- 💼 [LinkedIn](www.linkedin.com/in/yeremiaimanuel)  
 - 📍 Based in Tangerang, Indonesia
 
 > "Data is not just numbers, it tells stories — I aim to find and share them."
