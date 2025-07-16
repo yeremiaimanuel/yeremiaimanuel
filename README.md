@@ -20,7 +20,7 @@
 - Statistical analysis for business decisions
 
 ## 📫 Let’s Connect!
-- 📧 yeremiaimanuel22@gmail.com*  
+- 📧 yeremiaimanuel22@gmail.com
 - 💼 [LinkedIn](www.linkedin.com/in/yeremiaimanuel)  
 - 📍 Based in Tangerang, Indonesia
 
