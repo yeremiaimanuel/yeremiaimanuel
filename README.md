@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm Yeremia Imanuel
+# 👋 Hi there! I'm Yeremia Susanto
 
 🎓 **Information Systems student** (5th semester) at Universitas Multimedia Nusantara, specializing in **Big Data**.  
 💡 Passionate about turning data into insights that matter.  
